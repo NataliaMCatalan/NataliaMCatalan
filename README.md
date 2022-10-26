@@ -16,6 +16,7 @@ My curiosity to want to understand the data from its origin has led me to specia
 
 I have experience at a national level with leading international companies in their sector, which is why I speak fluent English and business English, the people who work with me usually point out that I have great communication skills and understanding of objectives, which has always helped me maintain focus on my management of teams, projects and results. It was a year ago when technology crossed paths in my career and since then it was clear to me to make the leap to the technology sector, specializing as a Data Analyst.
 
-https://media.giphy.com/media/FoVzfcqCDSb7zCynOp/giphy.gif
 
 
+
+![tenor](https://user-images.githubusercontent.com/108061043/198151960-5e35359e-6177-4c77-93a2-3206d9d761a4.gif)
