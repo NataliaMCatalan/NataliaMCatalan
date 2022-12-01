@@ -1,6 +1,6 @@
 ### Hi there 👋🏻
 - 🔎 I’m currently looking for a job as Data Analyst
-- 🌱 I’m learning Data Analytics with Python, SQL, Tableau
+- 🌱 I’m trainning Data Analytics with Python, SQL, Tableau
 - 📫 How to reach me natmarca@gmail.com
 - 👩🏻‍💻 About me ...
 
